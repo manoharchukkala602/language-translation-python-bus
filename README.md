@@ -3,4 +3,7 @@ its can transmitted english language into hindi language
 its too good for transmission text books 
 it can work on proffessional acadamies
 its help in to learn english to hindi 
+i was take just link of API which can make transmission thats it 
+its tooo gooood
+
 
